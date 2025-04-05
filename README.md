@@ -1,0 +1,1 @@
+# Tarjeta-grafica-msi-1050TI
